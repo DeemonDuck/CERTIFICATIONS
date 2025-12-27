@@ -1,1 +1,0 @@
-QMANSYS Internship Certificate
